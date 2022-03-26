@@ -1,2 +1,2 @@
-# La-neurociencia-de-la-música
+# La neurociencia de la música
 Mi página web
